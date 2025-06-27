@@ -1,5 +1,5 @@
 # LEGO BREAKING BAD MOC (My Own Creation) 
-Lego breaking bad M.O.C. (My own creation), with instructions (the pdf file). Around 700 peices. 
+Lego breaking bad M.O.C. (My own creation), with instructions (the pdf file). 612 LEGO parts. 
 
 ![brba](https://github.com/user-attachments/assets/d2bad470-7ae1-47ae-9f44-619e575454ac)
 
