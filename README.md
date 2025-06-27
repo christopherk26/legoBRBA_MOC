@@ -30,6 +30,6 @@ Auto Select
 
 Create carts. 
 
-The esitmated cost of the peices will be around 130 dollars as on June 2025. 
+The esitmated cost of the peices will be around 130 dollars as of June 2025. 
 
 If you are interested in Breaking bad minifigures, while there are LEGO customs, LEGO "purists" (meaning a Lego fan who primarily or exclusively uses genuine, unaltered Lego parts in their creations) will appreciate this video that shows many Breaking Bad characters remade very accurately using ONLY genuine LEGO bricks. https://www.youtube.com/watch?v=4oTcvCwi_0g&t=671s
