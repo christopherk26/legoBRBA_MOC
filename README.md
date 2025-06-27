@@ -1,5 +1,5 @@
-# legoBRBA_MOC
-Lego breaking bad M.O.C. (My own creation), with instructions (the pdf file)
+# LEGO BREAKING BAD MOC (My Own Creation) 
+Lego breaking bad M.O.C. (My own creation), with instructions (the pdf file). Around 700 peices. 
 
 ![brba](https://github.com/user-attachments/assets/d2bad470-7ae1-47ae-9f44-619e575454ac)
 
